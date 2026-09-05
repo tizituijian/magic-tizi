@@ -1,4 +1,4 @@
-# 最佳国内AI魔法梯子加速器推荐：翻墙机场节点科学上网VPN梯子，ChatGPT/Gemine/Claude梯子那个好用？
+# 最佳国内AI魔法梯子加速器推荐：翻墙机场节点科学上网VPN梯子，ChatGPT/Gemine/Claude梯子哪个好用？
 
 
 
